@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with best ftx trading bot Module | perpetual-trading + arbitrage-scanning, the #1 ftx trading bot. Includes perpetual-trading and arbitrage-scanning for a
 
 
 
